@@ -6,4 +6,4 @@
 
 ## Sink
 
-## Coffee table
+## Coffee table with flowers on top
